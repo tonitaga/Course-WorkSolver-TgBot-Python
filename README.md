@@ -83,4 +83,4 @@
 
 ---
 
-#### © tonitaga (Gubaydillin Nurislam) 07.05.2023
+#### © tonitaga (Gubaydullin Nurislam) 07.05.2023
